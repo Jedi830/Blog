@@ -1,1 +1,7 @@
+# Venting
+
 You know lately ive been thinking a lot about how people see the world. Perspectives and opinions and things of that nature and the world as people see it, sometimes it can be overwhelming how society can judje you based off what you feel like it right to you. From birth we are all forced to follow these certain morals, which is fine, its very reasonable to whats right and wrong usually in this world, but once you get older you start to see the world for what it really is, how cruel it can be.
+
+I never understood how the universe is so big that if you were to look at earth from a super-extended hyper telescope from about 65 million light years away, you would see dinosaurs :/. Its like tellin us we bassically missed our entire planet history while alien lifeforms who have nothing to do with earth can see it as a slideshow. Its crazy to think about how big space is, you could never really know how big space is but somehow scientists come up with these theorys that the "observable universe" isn't even the end of it.
+
+High school is so different from middle and elementary, same thing I feel like is about to be college, considering how grown you start to see yourself. Middle school you never were intreseted in any cars clothes nothing, but straight games. Now your in college and the only thing you really like is talking about cars shoes and new clothes, while barley playing games.
