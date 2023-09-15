@@ -1,0 +1,1 @@
+You know lately ive been thinking a lot about how people see the world. Perspectives and opinions and things of that nature
